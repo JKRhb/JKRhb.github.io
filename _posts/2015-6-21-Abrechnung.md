@@ -77,4 +77,4 @@ Doch ich fürchte, dass ich persönlich auch bei meinem zweiten Versuch, bei AfA
 
 Wer die Hopis gut fand, wird AfA lieben. Also, wählt die mal vom 22. bis 26. Juni an einem der gefühlt drölf Millionen Wahllokale an der Uni. Kann mensch eigentlich nicht verfehlen.
 
-Goodbye. And thanks for all the fish.
+Goodbye. And thanks for all the fish. (And popcorn of course.)
