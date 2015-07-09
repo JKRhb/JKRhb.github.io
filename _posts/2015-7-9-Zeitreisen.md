@@ -3,13 +3,13 @@ layout: post
 title: Zeitreisen
 ---
 
-Ich habe Angst, es ist alles zu spät,
-komm ich mir doch vor, als hätte ich lange in einem Käfig gelebt.
-Ich betrete die Welt und fühle mich wie ein Zeitreisender
-der zu lange leise und die längste Zeit weise war. 
-Ist noch wer da? Sind die alten Gewissheiten noch wahr?
-Oder ist alles, woran wir glaubten, wofür wir uns selbst unserer Jugend beraubten,
-nur eine blasse Erinnerung und Mahr?
+Ich habe Angst, es ist alles zu spät,<br />
+komm ich mir doch vor, als hätte ich lange in einem Käfig gelebt.<br />
+Ich betrete die Welt und fühle mich wie ein Zeitreisender<br />
+der zu lange leise und die längste Zeit weise war. <br />
+Ist noch wer da? Sind die alten Gewissheiten noch wahr?<br />
+Oder ist alles, woran wir glaubten, wofür wir uns selbst unserer Jugend beraubten,<br />
+nur eine blasse Erinnerung und Mahr?<br />
 
 Ich schreite durch brennende Landschaften, in denen große Wunden klaffen.
 Eine groteske, verzerrte Collage all dessen was wir hassten
