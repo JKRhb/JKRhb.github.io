@@ -8,7 +8,8 @@ komm ich mir doch vor, als hätte ich lange in einem Käfig gelebt.
 Ich betrete die Welt und fühle mich wie ein Zeitreisender  
 der zu lange leise und die längste Zeit weise war.  
 Ist noch wer da? Sind die alten Gewissheiten noch wahr?  
-Oder ist alles, woran wir glaubten, wofür wir uns selbst unserer Jugend beraubten,  
+Oder ist alles, woran wir glaubten,  
+wofür wir uns selbst unserer Jugend beraubten,  
 nur eine blasse Erinnerung und Mahr?  
 
 Ich schreite durch brennende Landschaften, in denen große Wunden klaffen.  
