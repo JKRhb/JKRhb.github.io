@@ -4,8 +4,11 @@ title: Zeitreisen
 ---
 
 Ich habe Angst, es ist alles zu spät,  
+
 komm ich mir doch vor, als hätte ich lange in einem Käfig gelebt.  
+
 Ich betrete die Welt und fühle mich wie ein Zeitreisender  
+
 der zu lange leise und die längste Zeit weise war.  
 Ist noch wer da? Sind die alten Gewissheiten noch wahr?  
 Oder ist alles, woran wir glaubten, wofür wir uns selbst unserer Jugend beraubten,  
