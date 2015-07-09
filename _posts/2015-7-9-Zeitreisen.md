@@ -1,3 +1,8 @@
+---
+layout: post
+title: Zeitreisen
+---
+
 Ich habe Angst, es ist alles zu spät,
 komm ich mir doch vor, als hätte ich lange in einem Käfig gelebt.
 Ich betrete die Welt und fühle mich wie ein Zeitreisender
