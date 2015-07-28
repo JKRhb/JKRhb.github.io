@@ -15,7 +15,7 @@ Aufgelockert wurde die Vorstandswahl durch zwei Kandidaturen unsererseits für d
 
 Deutlich wurde allerdings bei der Befragung, dass die Koalition scheinbar immer noch keinen großen Plan hat, was sie im Detail machen will bzw. zumindest, wie die konkrete Arbeitsweise gestaltet wird (wenn mensch vom Nennen des alten LiSA-Slogans "AStA der Projekte" absieht). Bei 4 Wochen Zeit für Verhandlungen und mehreren Listen, die offenbar lediglich als verlängerter Arm von LiSA aufzufassen sind, ein Armutszeugnis.
 
-## Über 9<del>000</del> (mögliche) Referate
+## Über 9<del>000</del> (mögliche) Referate und mittelmäßige Satire
 
 Wie die allgemeine Sitzungsleitung funktionierte die nun folgende Wahl der Referate nicht reibungslos. Es gab zunächst ein meines Erachtens merkwürdiges Verfahren für den Beschluss der Referatsstruktur, bei dem die Versammlung Vorschläge machen sollte, statt eine komplette Struktur abzustimmen. Was uns natürlich dazu animierte, (eher wenig sinnvolle) Vorschläge einzubringen, was die Versammlung zumindest ein wenig aus dem Konzept brachte. 
 
@@ -25,11 +25,13 @@ Tendenziell eher sinnbefreit ist das "Exzellenz"-Referat der LiSA-treuen, mittel
 
 Das "Kultur und Sport"-Referat schlug in dieselbe Kerbe mit einer nicht gänzlich überzeugenden Vorstellung in Form einer Performance des Referenten als "Kulturminister". Der meines Erachtens größte Kritikpunkt ist, dass die Arbeit wohl mal wieder auf das ehemals als Cafè Kultur firmierende "Souterrain" (das meiner Meinung nach eigentlich rez-de-chaussée heißen müsste) beschränkt bleiben wird, während gleichzeitig Red Bull den Campus mit kommerziellen Veranstaltungen vereinnahmen darf. Irgendwie schade.
 
+## Klassiker und offene Fragen
+
 Weiterhin dabei sind das vom SDS gegründete Gewerkschaftsreferat und der AfA-Klassiker "Studium und Lehre". Letzteres möchte in Zukunft scheinbar mehr politisch und weniger serviceorientiert arbeiten, was die Frage nach der Überschneidung mit den beiden hochschulpolitischen Referaten eröffnet. Vielleicht wäre die Unterteilung in "Hochschulpolitik innen" und "Hochschulpolitik außen", wie sie von anderen ASten vorgenommen wird, sinnvoller als diese insgesamt unklare Ressortaufteilung.
 
 Last but not least kümmert sich die grün-alternative Liste weiterhin um ihre letztjährige Kreation mit dem Namen "politische Bildung und Soziales". Eine Kombination, die ich nach wie vor komisch finde, da sie zwei vollkommen verschiedene Arbeitsbereiche vereint, die eigentlich auch eine komplett andere Arbeitsweise erfordern. Aber da ich mit dieser Meinung eher alleine dastehe, nehme ich die Existenz des Referates einfach mal hin.
 
-Mit diesem Ensemble zieht der AStA also in das neue Jahr – und mir ist immer noch nicht ganz klar, was die einzelnen Referate eigentlich konkret vorhaben. Aber da es soetwas wie einen "Koalitionsvertrag" oder gemeinsame Leitlinien nicht zu geben scheint, ist sich die AStA-Koalition darüber offenbar selbst nicht gänzlich im Klaren. Die zu erwartende Arbeit wirkt jedenfalls unkoordiniert, jedes Referat scheint in seinem "offenen Arbeitskreis" eher sein eigenes Ding zu machen. Das mag vielleicht einfach der Stil von LiSA-ASten sein, mir fehlt da – angesichts der langen Verhandlungszeit – aber irgendwie ein gemeinsamer Plan.
+Mit diesem Ensemble zieht der AStA also in das neue Jahr – und mir ist immer noch nicht ganz klar, was die einzelnen Referate eigentlich konkret vorhaben. Aber da es soetwas wie einen "Koalitionsvertrag" oder gemeinsame Leitlinien nicht zu geben scheint, ist sich die AStA-Koalition darüber offenbar selbst nicht gänzlich im Klaren. Die zu erwartende Arbeit wirkt jedenfalls unkoordiniert, jedes Referat scheint in seinem "offenen Arbeitskreis" eher sein eigenes Ding zu machen. Das mag vielleicht einfach der Stil von LiSA-ASten sein, mir fehlt da aber – angesichts der langen Verhandlungszeit – irgendwie ein gemeinsamer Plan.
 
 ## Kontroversen und politische Gegensätze
 
