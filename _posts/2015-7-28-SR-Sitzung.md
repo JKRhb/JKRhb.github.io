@@ -15,7 +15,7 @@ Aufgelockert wurde die Vorstandswahl durch zwei Kandidaturen unsererseits für d
 
 Deutlich wurde allerdings bei der Befragung, dass die Koalition scheinbar immer noch keinen großen Plan hat, was sie im Detail machen will bzw. zumindest, wie die konkrete Arbeitsweise gestaltet wird (wenn mensch vom Nennen des alten LiSA-Slogans "AStA der Projekte" absieht). Bei 4 Wochen Zeit für Verhandlungen und mehreren Listen, die offenbar lediglich als verlängerter Arm von LiSA aufzufassen sind, ein Armutszeugnis.
 
-## Über 9~~000~~ (mögliche) Referate
+## Über 9<del>000</del> (mögliche) Referate
 
 Wie die allgemeine Sitzungsleitung funktionierte die nun folgende Wahl der Referate nicht reibungslos. Es gab zunächst ein meines Erachtens merkwürdiges Verfahren für den Beschluss der Referatsstruktur, bei dem die Versammlung Vorschläge machen sollte, statt eine komplette Struktur abzustimmen. Was uns natürlich dazu animierte, (eher wenig sinnvolle) Vorschläge einzubringen, was die Versammlung zumindest ein wenig aus dem Konzept brachte. 
 
