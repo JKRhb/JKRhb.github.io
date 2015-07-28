@@ -41,9 +41,9 @@ Dieser Antrag setzte nur das fort, was sich wie ein roter Faden durch die Sitzun
 
 Zuvor waren die AStA-Listen nicht einmal dazu bereit gewesen, sich mit uns für Gespräche zu treffen. Einerseits wegen der mittlerweile eigentlich nur noch peinlichen Erbfeindschaft zwischen LiSA und AfA und andererseits, weil gewisse Leute die ehemaligen Hochschulpiraten in den Reihen von AfA – das heißt: konkret eigentlich nur noch mich – persönlich nicht leiden können (während ich den betreffenden Leuten gegenüber so empfinde: ¯\\\_(ツ)\_/¯). 
 
-All dies trifft auf eine meines Erachtens verkürzte und inkonsequente Parlamentarismuskritik, die nicht nur zu einer Haltung führt, nach der am besten gar keine Debatten mehr im SR geführt werden sollen, sondern diese Debatten auch schnell auf die persönliche Ebene abrutschen. Wenngleich auch wir bzw. ich nicht unschuldig daran sein mögen. Ich habe jedenfalls den Eindruck, dass hier zwei vollkommen gegensätzliche Verständnisse von parlamentarischer Arbeit aufeinanderprallen: 
+All dies trifft auf eine meines Erachtens verkürzte und inkonsequente Parlamentarismuskritik, die nicht nur zu einer Haltung führt, nach der am besten gar keine Debatten mehr im SR geführt werden sollen. Zudem führt dies dazu, dass die stattfindenden Debatten schnell auf die persönliche Ebene abrutschen, da Angriffe nicht auf der Sachebene ankommen (woran wir vielleicht auch nicht in Gänze unschuldig sind). Ich habe den Eindruck, dass dies Ausdruck des Aufeinanderprallens zweier vollkommen gegensätzlicher Verständnisse von parlamentarischer Arbeit ist: 
 
-Unseres, das den SR nicht nur als formale Notwendigkeit ohne besondere Relevanz, sondern durchaus auch als politische Arena für einen mehr oder weniger leidenschaftlichen Austausch von Argumenten begreift. Und das der AStA-Koalition, bei der das genaue Gegenteil der Fall ist.
+Zum einen unser Verständnis, das den SR nicht nur als formale Notwendigkeit ohne besondere Relevanz, sondern durchaus auch als politische Arena für einen mehr oder weniger leidenschaftlichen Austausch von Argumenten begreift. Und das amtierenden AStA-Koalition, bei der das genaue Gegenteil der Fall ist.
 
 ## Willkommen in der Postdemokratie
 
