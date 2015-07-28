@@ -59,4 +59,4 @@ Die Antwort ist mit Sicherheit nicht, den SR wie den AS zu blockieren. Stattdess
 
 Auch unter dem Risiko, dass ich – sofern ich weiter an der Uni Bremen studiere – damit in die Reihen derer gerate, die den Absprung aus der Hochschulpolitik nicht schaffen (obwohl ich ja quasi schon meinen Abschiedspost verfasst habe), sehe ich es schon als meine Pflicht an, meine Genoss\*innen von AfA in dieser Frage weiterhin zu unterstützen. Ich finde die Widersprüche in dieser verfassten Studierendenschaft zu eklatant, als dass ich den Kampf einfach so aufgeben könnte. Außerdem muss ich eigentlich immer noch meine lang ankündigte Hochschulpolitik-EP herausbringen... Mindestens bis zu deren Release-Termin werde ich also meine ideelle Fördermitgliedschaft bei AfA aufrecht erhalten.
 
-Wenn ich noch einmal bei einer SR-Sitzung bin, werde ich einen schweren Fehler jedoch nicht wiederholen – und mich rechtzeitig mit ausreichend Popcorn eindecken. Sehr viel Popcorn.
+Wenn ich noch einmal bei einer SR-Sitzung bin, werde ich einen schweren Fehler jedoch nicht wiederholen – und mich rechtzeitig mit ausreichend Popcorn eindecken.
