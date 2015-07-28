@@ -25,7 +25,7 @@ Tendenziell eher sinnbefreit ist das "Exzellenz"-Referat der LiSA-treuen, mittel
 
 Das "Kultur und Sport"-Referat schlug in dieselbe Kerbe mit einer nicht gänzlich überzeugenden Vorstellung in Form einer Performance des Referenten als "Kulturminister". Der meines Erachtens größte Kritikpunkt ist, dass die Arbeit wohl mal wieder auf das ehemals als Cafè Kultur firmierende "Souterrain" (das meiner Meinung nach eigentlich rez-de-chaussée heißen müsste) beschränkt bleiben wird, während gleichzeitig Red Bull den Campus mit kommerziellen Veranstaltungen vereinnahmen darf. Irgendwie schade.
 
-## Klassiker und offene Fragen
+## Klassiker, die Fragen offen lassen
 
 Weiterhin dabei sind das vom SDS gegründete Gewerkschaftsreferat und der AfA-Klassiker "Studium und Lehre". Letzteres möchte in Zukunft scheinbar mehr politisch und weniger serviceorientiert arbeiten, was die Frage nach der Überschneidung mit den beiden hochschulpolitischen Referaten eröffnet. Vielleicht wäre die Unterteilung in "Hochschulpolitik innen" und "Hochschulpolitik außen", wie sie von anderen ASten vorgenommen wird, sinnvoller als diese insgesamt unklare Ressortaufteilung.
 
