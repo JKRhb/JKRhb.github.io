@@ -5,7 +5,7 @@ title: First as tragedy, then as farce – then as konstituierende SR-Sitzung vo
 
 Am Freitag hat sich der neue SR konstituiert und den AStA der kommenden Legislaturperiode gewählt. Und ich muss persönlich sagen, dass es eine der anstrengendsten Sitzungen war, die ich bislang erleben durfte. In circa sechs Stunden zeigte die neue AStA-Koalition nicht nur, wie wenig sie von der Mitwirkung des SR und demokratischen Verfahren hält, sondern auch, wie planlos die Koalition trotz einer 2/3-Mehrheit und eigentlich wenigen Hürden bei den Verhandlungen in das kommende Jahr geht.
 
-## Ein mäßig guter Auftakt und Vorstandswahl  – mit mindestens zwei guten Kandidierenden
+## Ein mäßig guter Auftakt, Vorstandswahl  – und mindestens zwei gute Kandidierende
 
 Als erster Punkt stand die Wahl des Präsidiums auf der Tagesordnung. Trotz der eindeutigen Formulierung, dass der\*die Präsident\*in "aus der Mitte" des SR gewählt werden muss und der bisherigen, langjährigen Praxis wurde ein Präsident gewählt, der kein Mitglied des SR, sondern lediglich vertretungsberechtig ist, also auf einem der hinteren Listenplätze steht. Wahrscheinlich durchaus ein möglicher Anlass, um die Versammlung anzufechten, aber das ist es natürlich nicht wert, schließlich hängen ja nicht zuletzt die im AStA arbeitende Menschen davon ab, dass es jemanden gibt, der\*die Gehälter überweisen kann. Dennoch war schon dies kein guter Auftakt für die Sitzung.
 
@@ -15,7 +15,7 @@ Aufgelockert wurde die Vorstandswahl durch zwei Kandidaturen unsererseits für d
 
 Deutlich wurde allerdings bei der Befragung, dass die Koalition scheinbar immer noch keinen großen Plan hat, was sie im Detail machen will bzw. zumindest, wie die konkrete Arbeitsweise gestaltet wird (wenn mensch vom Nennen des alten LiSA-Slogans "AStA der Projekte" absieht). Bei 4 Wochen Zeit für Verhandlungen und mehreren Listen, die offenbar lediglich als verlängerter Arm von LiSA aufzufassen sind, ein Armutszeugnis.
 
-## Über 9~000~ (mögliche) Referate
+## Über 9~ ~000~ ~ (mögliche) Referate
 
 Wie die allgemeine Sitzungsleitung funktionierte die nun folgende Wahl der Referate nicht reibungslos. Es gab zunächst ein meines Erachtens merkwürdiges Verfahren für den Beschluss der Referatsstruktur, bei dem die Versammlung Vorschläge machen sollte, statt eine komplette Struktur abzustimmen. Was uns natürlich dazu animierte, (eher wenig sinnvolle) Vorschläge einzubringen, was die Versammlung zumindest ein wenig aus dem Konzept brachte. 
 
