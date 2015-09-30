@@ -19,7 +19,7 @@ und der Umgebung und uns beim Verfallen zusahen.
 Es ist nicht mehr dieselbe Welt. Es ist eine auf unseren Schultern erbaute.  
 Sie sah das Grauen, das wahr wurde, während mancher von uns ergraute.  
 Wie eine Statue unserer Bürde, die uns fernab zum Denkmal ward  
-gemeißelt aus unserer Würde - die trotz all dem nicht starb.  
+gemeißelt aus unserer Würde – die trotz all dem nicht starb.  
 
 Mittlerweile sind wir alt, doch immerhin sind wir frei  
 und ich soweit, dass ich mir Fehler, die keine waren, verzeih.  
