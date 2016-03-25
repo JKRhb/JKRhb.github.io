@@ -1,3 +1,8 @@
+---
+layout: post
+title: Schleifen
+---
+
 Etienne war Schriftsteller. Das bildete er sich zumindest ein. In Wahrheit schrieb er seit Jahren an der gleichen Geschichte und fing immer wieder von vorne an. Als ob er in einer Zeitschleife gefangen war.
 
 Es war wieder einmal spät abends und Etienne saß an seinem Schreibtisch, der geradezu übersäht war mit zusammengeknülltem Papier, nichtssagendem Notizen und hässlichen Zeichnungen, die sich auf dem künstlerischen Niveau eines Drittklässlers bewegten. Etienne ließ sich von diesem Chaos nicht beirren und fing an zu schreiben. Seine dystopische Erzählung eines alten Mannes im Trenchcoat ging in die nächste Runde. 
