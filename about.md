@@ -4,4 +4,4 @@ title: Über
 permalink: /about/
 ---
 
-Ich studiere Politikwissenschaft an der Uni Bremen und beschäftige mich in letzter Zeit zunehmend mit Themen aus der Richtung Informatik. Ich bin nebenbei noch Teil des Blogger*innenkollektivs [Stadtkontext](http://www.stadtkontext.de), wo meine Aktivität jedoch ausgeprägter sein könnte. In den letzten Jahren war ich auch in einer mit Freund_innen gegründeten Hochschulgruppe an der Uni Bremen im AStA und SR aktiv (sowie in einer mittlerweile bedeutungslosen, orangenen "Netzpartei"), habe mein hochschulpolitisches wie parteipolitisches Engagement jedoch mittlerweile weitestgehend eingestellt. Nicht zuletzt habe ich ein gewisses Faible für Sprache und Musikinstrumente.
+Hallo Leute und willkommen auf meinem Blog. Hier schreibe ich ab und an Dinge, z. B. Gedanken zu bestimmten Themen, Gedichte oder Geschichten. Ich habe ein großes Faible für Sprache und mag es, mit ihr Bilder zu kreieren und herumzuexperimentieren. Nebenbei studiere ich ein wenig an der Uni Bremen (den Master *Sozialpolitik*) und bin momentan eher unterstützender Teil des Blogger*innenkollektivs [*Stadtkontext*](http://www.stadtkontext.de).
